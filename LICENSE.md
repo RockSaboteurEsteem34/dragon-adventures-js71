@@ -1,4 +1,4 @@
-#  
+#  dragon adventures advanced Script is the best dragon adventures Script, featuring one-hit kill and auto-sell. Safe and powerful for all your needs.
 
 
 
